@@ -1,4 +1,4 @@
 ### thatjoelallison
 
-![@thatjoelallison](https://imgur.com/pXEPkD5)
+![@thatjoelallison](https://i.imgur.com/pXEPkD5.jpg)
 
